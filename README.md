@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @spencerl35
+- 👀 I’m interested in software engineering
+- 🌱 I’m currently learning data structures
+- 💞️ I’m looking to collaborate with companies through internship opportunities
+- 📫 How to reach me email @ slarson3210@gmail.com or phone @ (414) 617-7447
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I love to snowboard
